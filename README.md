@@ -1,5 +1,5 @@
 - 👋 olá seja bem vinda 
-- 👀 adivogacia 
+- 👀 adivocacia 
 - 🌱 ensino medio 
 - 💞️ ajudar mais 
 - 📫 instagram
